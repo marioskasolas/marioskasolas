@@ -1,1 +1,1 @@
-Uniwa Student - ICE 
+Information and Computer Engineering at UniWa
