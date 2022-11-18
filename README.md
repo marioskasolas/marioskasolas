@@ -1,1 +1,1 @@
-Information and Computer Engineering at UniWa
+🎓Information and Computer Engineering at UniWa
