@@ -4,7 +4,7 @@
   
 
 ### Hi GitHub.
-Student of Informatics and Comuter Engineering at University of West Attica   
+Informatics and Computer Engineering , University of West Attica   
   
 
 <div align="center">  
